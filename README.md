@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GUMP050126MMCTNLA6
+GUMP050126MMCTNLA6
